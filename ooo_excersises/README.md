@@ -1,1 +1,0 @@
-# ooo_excersises
